@@ -1,1 +1,1 @@
-fsdfsdfd
+git ni organish davomidagi ishlar
